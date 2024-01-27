@@ -6,7 +6,5 @@ xZXXzXXaasdaq
 grdsfvcbxfbfxdgbdff
 fsfddsfsaf
 dfggfewferbxfgdgrsefew
-fefeawnghmhjkhg
-ggfhhtysrtgare
-gfgsgserte
+fefeawnghmhjk
 gdgdgsdgs
