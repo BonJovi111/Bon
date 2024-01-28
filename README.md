@@ -5,6 +5,5 @@ xZXXzXXaasdaq
 исиавпвscdaSASasad
 grdsfvcbxfbfxdgbdff
 fsfddsfsaf
-dfggfewferbxfgdgrsefew
-fefeawnghmhjk
+dfggfewfemhjk
 gdgdgsdgs
