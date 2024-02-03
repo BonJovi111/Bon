@@ -4,5 +4,3 @@ sdsac21
 xZXXzXXaasdaq
 исиавпвscdaSASasad
 grdsfvcbxfbfxdgbdff
-fsfddsf
-sdAffefg
