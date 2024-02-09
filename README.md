@@ -3,7 +3,4 @@ sdadwdsaddadsx
 sdsac21
 xZXXzXXaasdaq
 исиавпвscdaSASasad
-grdsfvcbxfbfxdgbdff
-bfbfvdv
-ghfdggb
-bvcbvcbc
+grdsfvcbxfbfxdgbdf
